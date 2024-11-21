@@ -7,9 +7,10 @@ These days, there are many dangerous goods accidents that threaten the safety of
 ![image](https://github.com/user-attachments/assets/6f0ea9e4-3008-407e-8284-931530a6d7ce)
 
 # VIDEO FOR LEARNING
-I chose a video to learn how to use a pistols.
+I choose videos to learn how to use a pistols.
 
 https://www.youtube.com/shorts/bteQ-4K_x8o (유튜브 권빵튜브)
+https://www.youtube.com/watch?v=qkTsOHsvc-4 (유튜브 유용원TV)
 
 ![image](https://github.com/user-attachments/assets/4e22c5a8-844e-4b3a-8d4c-584ae116337d)
 ![image](https://github.com/user-attachments/assets/83f676a3-1e8f-47a9-9211-5753afef27cd)
