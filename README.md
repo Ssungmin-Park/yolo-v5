@@ -27,3 +27,33 @@ https://github.com/user-attachments/assets/19062ae7-e3e5-413b-ac7e-73d355ba774f
 
 https://github.com/user-attachments/assets/d34d2a53-4d4d-4e5b-b0a4-d7860f78bc5b
 
+# Learning Process
+
+![image](https://github.com/user-attachments/assets/aa7a9a99-9e2e-40c2-b554-14f54a9c70cc)
+
+![image](https://github.com/user-attachments/assets/6a8c8292-6320-46ca-93fb-fd5d3d252217)
+
+![image](https://github.com/user-attachments/assets/d65b3d24-0196-4fcb-b5e0-c33b7af52758)
+
+![image](https://github.com/user-attachments/assets/5ea34b69-0dc0-4466-91f7-f0d59cd6b4c5)
+
+![image](https://github.com/user-attachments/assets/9c03143f-bdce-4ea7-9a2a-20369126b120)
+
+![image](https://github.com/user-attachments/assets/610d76da-e3fa-4e70-8b47-883100699e68)
+
+![image](https://github.com/user-attachments/assets/718c38d0-542d-439b-ac93-90aff976d2cf)
+
+# Learning Outcome
+
+![image](https://github.com/user-attachments/assets/aecaeaf1-7bd8-4cb3-82b2-4d215d8bdd23)
+
+![image](https://github.com/user-attachments/assets/a9f672a4-cb76-4a3c-98ce-3dbc78de9d7d)
+
+![image](https://github.com/user-attachments/assets/d5c953d7-9053-4362-b7f9-206248cccf9a)
+
+![image](https://github.com/user-attachments/assets/a6e57a3e-d59b-42c3-86a9-eeaf858debad)
+
+![image](https://github.com/user-attachments/assets/acb23e94-f05e-4a00-a36c-7ac3bbe769a7)
+
+https://github.com/user-attachments/assets/b478cc3f-3dd9-48d2-81cd-669d4bd53f6f
+
