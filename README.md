@@ -23,10 +23,6 @@ Drag the pistols from the video to label them for labeling
 
 https://github.com/user-attachments/assets/19062ae7-e3e5-413b-ac7e-73d355ba774f
 
-
-
-https://github.com/user-attachments/assets/d34d2a53-4d4d-4e5b-b0a4-d7860f78bc5b
-
 # Learning Process
 
 ![image](https://github.com/user-attachments/assets/aa7a9a99-9e2e-40c2-b554-14f54a9c70cc)
