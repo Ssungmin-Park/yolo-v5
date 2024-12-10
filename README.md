@@ -53,8 +53,10 @@ https://github.com/user-attachments/assets/19062ae7-e3e5-413b-ac7e-73d355ba774f
 
 https://github.com/user-attachments/assets/b478cc3f-3dd9-48d2-81cd-669d4bd53f6f
 
-original video
+# Jestson Nano video
+
+https://github.com/user-attachments/assets/caf33b34-24da-4023-a785-2473a134f9e2
 
 
-https://github.com/user-attachments/assets/92220d05-1e98-4384-9bf2-f158c28e1468
+https://github.com/user-attachments/assets/c126a3e9-a0ac-42cf-8104-bc4b15608825
 
